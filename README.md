@@ -1,6 +1,6 @@
 # Mis preguntas de investigación
 
-Mi familia de plantas asignada es: Euphorbiaceae
+Mi familia de plantas asignada es: Meliaceae
 
 Elegí la siguiente combinación de temas/preguntas: ABCD
 
